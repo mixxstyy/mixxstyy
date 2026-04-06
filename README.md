@@ -1,6 +1,6 @@
 # Misty's Page! 🦭
 <p text align="center">
-MINOR!
+Minor, Atheist
 <br/>
 She/They, Lesbian, Greyromantic & Greysexual
 <br/>

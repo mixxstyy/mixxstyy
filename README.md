@@ -37,7 +37,7 @@ $${\color{blue}· · ─ ·✶· ─ · ·}$$
     <li>Proshippers</li>
     <li>MAGA/ICE supporters (unkindly go fuck yourselves 😊) </li>
     <li>Fans of problematic media but only those who still support it (Vivziepop fans dni) </li>
-    <li>are religious but only the ones who 'spread the gospel' when they're just trying to convert people</li>
+    <li>religious but only the ones who 'spread the gospel' when they're just trying to convert people, in addition to that, people who use their religion as an excuse to be hateful (homophobic, racist, pedophillic ect.)</li>
     <li>You're just mean to people for no reason</li>
     <br/>
     <p text align="center">
